@@ -1,2 +1,2 @@
-# Moon-crack-by-Sk3d-club
+# Moon-crack-by-Dezynfekcja
 password 000
